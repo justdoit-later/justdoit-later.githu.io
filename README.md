@@ -1,4 +1,5 @@
-![image](https://user-images.githubusercontent.com/414141/115000821-d9cf0800-9ec2-11eb-8e26-60b756485989.png)
+![just_do_it-later-philosophy](https://user-images.githubusercontent.com/414141/115003600-af327e80-9ec5-11eb-92d2-46e5f2ffb5b1.png)
+
 
 # Just Do It Later 
 
