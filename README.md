@@ -19,4 +19,4 @@ Sleep on it.
 
 Just do it later,
 
-[Homer Simson](https://en.wikipedia.org/wiki/Homer_Simpson)
+[Homer Jay Simson](https://en.wikipedia.org/wiki/Homer_Simpson)
